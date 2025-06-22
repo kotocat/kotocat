@@ -1,6 +1,30 @@
 <p align="center">
 <img src="https://files.catbox.moe/ak1jc8.jpeg" width="300" height="200">
+</p>
 
+﹒ ︵︵﹒︵︵୨ ꒰ abt me ꒱ ୧︵︵﹒︵︵ ﹒
+
+🧷 u can call me pretty OR (koto)ka 
+
+💅 im a bit old.. but not an adult (17) i may be a little busy w studies sometimes
+
+🐯 i am an INTROJECT! pls get out if u dont wanna respect me like mind ur own business??
+
+💬 eng OK！i act speak some otha lingos buuut ur gonna have 2 figure it out for yaself 
+
+﹒ ︵︵﹒︵︵୨ ꒰ other ꒱ ୧︵︵﹒︵︵ ﹒
+
+🍨 : im actually in a lot of fandoms.. 2 name a few - hoyogames, niji, holo, alnst, pjsk, hypmic, a3 (not as much) n uhh yea i forgot the rest
+
+💖 im bisexual leaning a bit more into girls but i have like a massive crush on ermmmm ververmillion??? ew???
+
+🎀 i am the W in kekw
+
+﹒ ︵︵﹒︵︵୨ ꒰ talk ꒱ ୧︵︵﹒︵︵ ﹒
+
+ฅ^>⩊<^ฅ niji fans int~ (BOTH JP/EN BRANCHES!!!)
+
+🧷💅 fashion peeps welcome ♡
 <!--
 **kotocat/kotocat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -10,7 +10,7 @@
 
 🐯 i am an INTROJECT! pls get out if u dont wanna respect me like mind ur own business??
 
-💬 eng OK！i act speak some otha lingos buuut ur gonna have 2 figure it out for yaself 
+💬 eng OK！i can speak 3 otha lingos buuut ur gonna have to figure them out for yaself 
 
 ﹒ ︵︵﹒︵︵୨ ꒰ other ꒱ ୧︵︵﹒︵︵ ﹒
 

@@ -18,13 +18,15 @@
 
 💖 im bisexual leaning a bit more into girls but i have like a massive crush on ermmmm ververmillion??? ew???
 
-🎀 i am the W in kekw
+🎀 just so yk i make a lot of jokes sexualizing myself but yeaaa dont do that 2 me atleast not without my permission i guess?? also SOME men just creep me out in general sooo.. oh n i am the W in kekw
 
 ﹒ ︵︵﹒︵︵୨ ꒰ talk ꒱ ୧︵︵﹒︵︵ ﹒
 
 ฅ^>⩊<^ฅ niji fans int~ (BOTH JP/EN BRANCHES!!!)
 
-🧷💅 fashion peeps welcome ♡
+🧷💅 fashion peeps welcome ♡ btw i will hide u if i want 
+
+👿👿 dont talk 2 me if u feel so scary n intimidating on the INTERNET i want cute n funny friends....
 <!--
 **kotocat/kotocat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -1,4 +1,5 @@
-## Hi there 👋
+<p align="center">
+<img src="https://files.catbox.moe/ak1jc8.jpeg" width="300" height="200">
 
 <!--
 **kotocat/kotocat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

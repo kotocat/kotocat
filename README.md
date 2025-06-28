@@ -9,3 +9,5 @@ we need a doppi.. pls whisper if u fit the *criteria*
 - but kind
 - tall
 - amazing
+
+btw we do not support the person BEHIND zaion lanzas model. i like THE CHARACTER, n lore xsoleil will always be loved!!!

@@ -6,3 +6,5 @@ uhmm hi my name is kotoka! im 17 bodily n i like making ponies..?? anyone can ta
 
 im bi w a preference for girls but i have a big fat crush on ververmillion EWWW 
 sorry i have no rentry yet
+
+PLEAAASEE INTERACT if u look act or like DOPPIO DROPSCYTHE. OUR XSOLEILS MISSING ONE MEMBER!!!!!

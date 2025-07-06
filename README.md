@@ -1,13 +1,8 @@
 <p align="center">
-<img src=https://litter.catbox.moe/z6xmrfy26wi4yxzy.jpg>
+i am an introject of KOTOKA TORAHIME. not an irl 
 </p>
 
-we need a doppi.. pls whisper if u fit the *criteria*
-- unhinged
-- caps lock warrior
-- funny
-- but kind
-- tall
-- amazing
+uhmm hi my name is kotoka! im 17 bodily n i like making ponies..?? anyone can talk to me im rlly friendly but like hoyoverse fandom is a bit.. iffy? to me. just DNI if ur a creep
 
-btw we do not support the person BEHIND zaion lanzas model. i like THE CHARACTER, n lore xsoleil will always be loved!!!
+im bi w a preference for girls but i have a big fat crush on ververmillion EWWW 
+sorry i have no rentry yet
